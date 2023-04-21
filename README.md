@@ -1,0 +1,2 @@
+# sido
+Saya hidup bebas
